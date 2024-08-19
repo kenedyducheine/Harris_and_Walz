@@ -3,5 +3,6 @@ The purpose of this project is just to get an overall idea of how the population
 
 #### Timeline: 
 August 6th: Tim Walz is announced as Harris's VP pick. 
+August 19th: DNC Day 1
 
 
