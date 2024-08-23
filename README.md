@@ -5,6 +5,7 @@ The purpose of this project is just to get an overall idea of how the population
 August 6th: Tim Walz is announced as Harris's VP pick.\
 August 19th: DNC Day 1. H. Clinton, Biden, AOC, Harris\
 August 20th: DNC Day 2 The Obamas\
-August 21st: DNC Day 3 B. Clinton\
+August 21st: DNC Day 3 B. Clinton and Walz\
+August 22nd: DNC Day 4: Warren, Harris
 
 
