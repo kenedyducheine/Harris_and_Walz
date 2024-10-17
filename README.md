@@ -17,6 +17,8 @@ August 19th: DNC Day 1. H. Clinton, Biden, AOC, Harris\
 August 20th: DNC Day 2 The Obamas\
 August 21st: DNC Day 3 B. Clinton and Walz\
 August 22nd: DNC Day 4: Warren, Harris
+September 10: Presidental Debate
+October 2: Vice Presidental Debate 
 
 
 
